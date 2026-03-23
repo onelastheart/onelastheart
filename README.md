@@ -1,5 +1,5 @@
 <p align="center">  
-err err err revamp soon i dont care about tetro anymore aside from ogura but she is my OC now LOL
+prev user @oguranoriko lol IDGAF about tetro anymor ... i like ogura but i feel weird blep blep blep
 <img src="https://i.postimg.cc/cLHgZ2PY/top_div.png"/>
 <br>
 ‿︵‿꒰৯ Lay me down and KILL me ... ໒꒱
