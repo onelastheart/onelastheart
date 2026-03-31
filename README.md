@@ -1,5 +1,5 @@
 <p align="center">  
-prev user @oguranoriko lol IDGAF about tetro anymor ... i like ogura but i feel weird blep blep blep also FFS please follow on your mains lol im not gonna follow you back if you follow on an alt. whats even the point of that? to farm followers? i am NOT your fan, follow me on your main or im not following back at all
+prev user @oguranoriko lol IDGAF about tetro anymor ... i like ogura but i feel weird blep blep blep also FFS please follow on your mains lol im not gonna follow you back if you follow on an alt. whats even the point of that? to farm followers? i am NOT your fan
 <img src="https://i.postimg.cc/cLHgZ2PY/top_div.png"/>
 <br>
 ‿︵‿꒰৯ Lay me down and KILL me ... ໒꒱
